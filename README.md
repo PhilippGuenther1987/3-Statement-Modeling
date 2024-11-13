@@ -1,1 +1,1 @@
-![LOSP](https://github.com/user-attachments/assets/ce767c5e-2977-424a-bf12-b05f4b685b86)
+![3-Statement Modeling](https://github.com/user-attachments/assets/9bf45e96-7854-492c-b9ce-9d8fa42d8fab)
