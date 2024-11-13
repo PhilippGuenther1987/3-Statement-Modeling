@@ -1,1 +1,1 @@
-![3-Statement Modeling](https://github.com/user-attachments/assets/9bf45e96-7854-492c-b9ce-9d8fa42d8fab)
+![3StatementModeling](https://github.com/user-attachments/assets/29f3d043-8eb9-44ed-9fb4-38297540ded0)
